@@ -11,7 +11,7 @@
 * Berliner Unterwelten: For de som liker eventyr og ikke har klaustrofobi. Berlin har tusenvis av ubrukte tunneler fra alle slags tidepoker. Berliner Unterwelten tilbyr turer i forlate tunneler og forteller historiene om disse, uansett om det er Nazid, kald krig eller hva som helst. Alltid booket ut langt på forhånd, men man kan være heldig. https://www.berliner-unterwelten.de/en/index.html; jeg har deltatt i tre av dem, tur 3 "Bunkers and Subways" er alltid fantastisk.
 * Museumsinsel: obviously
 
-## Touristuff
+### Touristuff
 * Utsikt: De som er lei Fernsehturm, men ønsker seg en fin utsikt kan dra til Siegessäule eller Reichstagskuppel. Førstnevnte er en høy søyle som er pent å se på og der man må ta trapper opp selv, men det er absolutt verdt det. Utsikt over hele Tiergarten og halve Berlin, fritt for mange turister. Inngangsbilletten (3 EUR) kan kun kjøpes kontakt, velkommen i Tyskland. Den andre, Reichstagskuppel er taket av det tyske parlamentet. Få vet at man kan gå opp dit og se på utsikten over hele regjeringskvartalet. Obs: påmelding trengs så det vet på forhånd om "ond folk" besøker det tyske parlamentet.
 
 ## Ting å gjøre rundt Berlin
